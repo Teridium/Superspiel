@@ -1,1 +1,1 @@
-Open the rules file. Thanks
+Open the rules file. Thanks!
